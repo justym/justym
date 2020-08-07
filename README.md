@@ -1,0 +1,8 @@
+# 👾 Justym 👾
+
+I am newbie :)
+
+
+
+
+
