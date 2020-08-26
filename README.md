@@ -1,6 +1,6 @@
 # 👾 Justym 👾
 
-I am newbie :)
+newbie :)
 
 
 
