@@ -1,6 +1,6 @@
 # 👾 Justym 👾
 
-I'm just taking it slow to figure out my next move 🐢
+step by step 🐢
 
 
 
